@@ -95,6 +95,9 @@ tapi mampu menciptakan sistemnya sendiri.
 
 
 <br>
+<br>
+
+
 > Untukmu yang mencintai kehidupan, 4 Juli 2025
 
 **by: [ceviherdianinsight.github.io](https://ceviherdianinsight.github.io)**
