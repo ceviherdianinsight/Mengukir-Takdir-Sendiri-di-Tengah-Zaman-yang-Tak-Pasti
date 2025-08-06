@@ -70,7 +70,7 @@ tapi nama baik dan portofolio akan tetap bicara.
 Maka bangun personal branding:  
 di LinkedIn, di blog, di komunitas.  
 
-Tunjukkan siapa dirimu —  
+Tunjukkan siapa dirimu
 bukan sebagai pencari kerja,  
 tapi sebagai pemecah masalah.
 
