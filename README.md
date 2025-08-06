@@ -1,0 +1,1 @@
+# Mengukir-Takdir-Sendiri-di-Tengah-Zaman-yang-Tak-Pasti
